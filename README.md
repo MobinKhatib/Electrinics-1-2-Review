@@ -1,1 +1,1 @@
-# Electrinics-1-2-Review
+# Electronics-1-2-Review
